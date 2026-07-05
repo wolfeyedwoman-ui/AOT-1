@@ -1,6 +1,6 @@
 # Plot Tracker: The Barn on the Logging Track
 
-*Status as of Chapter 6: dawn recon ride underway.*
+*Status as of Chapter 6: dawn recon ride underway — creek crossing reached, Súile leading the ridge approach.*
 
 ## What Súile found (Chapter 4 report)
 
@@ -22,9 +22,22 @@
 - **No squad briefing.** Not even Petra, yet. No mess-hall talk.
 - **Dawn recon, fourth bell:** Levi and Súile only, disguised as two officers exercising horses — Levi in an anonymous brown coat, Súile in her never-oiled plain cloak. Survey road to the fork, then the ridge, **no closer**. Objectives: age the ruts, count the traffic, confirm her bearings. Súile has the lead from the creek onward.
 
+## New evidence (dawn ride, Chapter 6)
+
+- **Fresh ruts in the mouth of the logging track, edges cut sharp — untouched by rain.** A wagon rolled *after* the storm broke, in the worst hours of the night. Either the schedule doesn't bend, or the storm was used as cover. "Your smugglers move on a clock, Sergeant, and thunder doesn't stop it."
+
+## The Voss Grimes question
+
+A defected Military Police officer — **Voss Grimes** (see [characters/voss-grimes.md](../characters/voss-grimes.md)) — has just transferred into the regiment with a spotless file. Súile flagged him; Levi's arithmetic:
+
+- Nobody defects from the MPs into the death branch without a conviction or an assignment, and clean Interior files are *cleaned* Interior files.
+- Transfer papers take weeks: Grimes was moved **before** the barn was found. Not a response — a **precaution**. Someone wanted eyes inside the one regiment that rides the west routes irregularly and can't be bought by the crate.
+- Countermeasures: don't spook him; rotation stands; second sealed letter to Erwin for a back-channel file check. Watch which way he angles — map room, duty rosters, or the west-detail riders. Predicted vector: Súile ("the easiest door in the keep"). Standing orders: take nothing to him, let him bring things to her.
+
 ## Open questions
 
-- Who holds the manifests — depot clerk, MP officer, quartermaster chain?
+- Who holds the manifests — depot clerk, MP officer, quartermaster chain? Is it Grimes's principal?
 - Where does the gear go: Underground buyers, interior collectors, or something worse?
-- Is the traffic on a schedule, and did the storm interrupt a delivery?
+- What moved on the post-storm wagon, and was the storm cover or coincidence?
 - Four men and a dog at the barn — garrison strength or skeleton crew?
+- Is Grimes genuine, a watcher, or the operation's fixer?

@@ -1,6 +1,6 @@
 # Story So Far
 
-*Last updated: end of Chapter 6 opening — the dawn ride has just left the gate.*
+*Last updated: mid–Chapter 6 — the dawn ride has reached the creek crossing.*
 
 ## Synopsis
 
@@ -12,7 +12,13 @@ The real report comes after: Súile's detail went off-route before the storm bec
 
 That night, Levi crosses the keep to Súile's tower room — a forgotten library-study-and-apothecary lined with contraband pre-Wall folklore, all of which she has secretly read — bringing tea, Petra's honey dish, and salve for the shoulder injury she left out of her report. She tells him her callsign was her mother's nickname, in a language older than any of the banned books: foxes are trickster spirits who humble the proud. He tells her — a sliver, quickly shut away — about an inheritance of one first name and a way of sitting. The honey dish stays in the tower.
 
-**Fourth bell, the next morning.** Levi and Súile ride out disguised as two officers exercising horses, bound for the fork and the ridge — close enough to age the ruts and count the traffic, no closer. Súile has the lead from the creek onward. It's her ground.
+**Fourth bell, the next morning.** Levi and Súile ride out disguised as two officers exercising horses, bound for the fork and the ridge — close enough to age the ruts and count the traffic, no closer.
+
+On the road, Súile raises the regiment's newest wrinkle: **Voss Grimes**, a defected MP with a spotless file, transferred in just as a smuggling operation runs half a day from the keep. Levi's arithmetic is colder than suspicion: the transfer predates the barn's discovery, making Grimes a *precaution*, not a response — someone's eyes inside the Scouts. Countermeasures are set (rotation stands, second letter to Erwin, watch which way he angles), with one prediction: Grimes will read "Pixis's girl" as the easiest door in the keep. Súile's orders are to let him think it.
+
+Passing the logging track, Levi clocks fresh ruts with rain-free edges — a wagon moved *after* the storm broke. The smugglers run on a clock that thunder doesn't stop.
+
+At the creek crossing, Levi hands over the lead: "From here, you're the captain. Show me how a fox walks."
 
 ## Open threads
 
@@ -24,6 +30,8 @@ That night, Levi crosses the keep to Súile's tower room — a forgotten library
 - **The contraband library.** Levi now knows Súile has read all of it. He has decided to be the sort of man who keeps that secret.
 - **The salve tin.** Hers now. So is the honey dish.
 
+- **Voss Grimes.** Defected MP, spotless (cleaned?) file, freshly arrived. Genuine, watcher, or fixer? Second sealed letter to Erwin pending. Predicted to make a run at Súile.
+
 ## Current scene state
 
-Chapter 6, just past the gate at dawn. Levi in an anonymous brown coat, no wings, no cravat. Plan: survey road to the fork, then the ridge. Súile takes the lead from the creek. Next turn is hers.
+Chapter 6, at the creek crossing in early morning light. Fresh post-storm ruts confirmed at the logging track's mouth. Súile now has the lead — the ridge approach is hers to run, with Levi following. Next turn is hers.

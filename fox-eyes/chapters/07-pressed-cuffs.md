@@ -89,3 +89,27 @@ The pause that followed was one-quarter of a second long, exactly the length of 
 Grimes watched him go. Something in the grey-blue eyes re-priced the room — and then he leaned in, forearms on the table, the voice dropping to that half-register reserved for her, the smile a degree warmer and one insistence past casual now, less question than invitation to conspire.
 
 "Runs a *tight* table, your captain. All ledgers and lists — man like that only sees what's written down." A conspirator's beat. "But you were saying, Sergeant. Before we were audited. The west ground — *your* ground. A hunter who rides out before fourth bell sees things the ledgers don't." The cuff, again. The eyes didn't blink. "What do the woods say at night?"
+
+"Hoot. Howl. Growl. Squeak." She smiled at him, still chewing, and spooned another mouthful of stew into her cheek.
+
+Grimes blinked once. The laugh came — big, warm, delighted, both hands up in surrender — but it came a *sixteenth-note late*, and Súile, who could hear a jay decide, heard it: the tiny gap where the machinery had to fetch the laugh from storage, because nothing about a wall of nothing wrapped in dimples was funny to the man behind the grey-blue. "Ha! An almanac. The regiment's full of poets—"
+
+"Petra!" Súile was already turned, waving her spoon. "Come eat. Let the cook take over, and you enjoy some fresh meat while it's hot."
+
+For exactly one heartbeat, Petra Ral stood at the pot recalculating the entire diplomatic map — the fox, the invitation, the stranger, the *seat geometry* — and then squad instinct settled it the way it settled everything with those four: silently, unanimously, and at once. She handed the ladle to the cook, collected a bowl, and sat down beside Súile — beside, shoulder almost touching, on the *fox's* flank of the table — with her spine straight and her smile at Grimes recalibrated to the setting she used for merchants who miscounted change.
+
+And then the mess did the thing the Special Operations Squad was famous for doing, the thing recruits whispered about: it *synchronized*. No signal. No word. Eld simply arrived, straddling the bench at Súile's other side with his bowl, mid-anecdote as if he'd always been there. Gunther materialized at the table's end with bread and a jug and his particular stern silence, angled — coincidentally — square across Grimes's line to the door. Oluo dropped in last directly beside Grimes, close, companionable, and began telling him — *him*, personally, at length — about proper wild game preparation, with tongue-related interruptions. Within forty seconds the interior's smoothest operator was boxed into a friendly wall of humanity's most elite squadron, holding a cooling teacup, being educated about rabbit sinew.
+
+From the wall table, Levi watched over the rim of his cup, palm around the porcelain, and something at the hinge of his jaw was — if a witness were reckless enough to name it — *content*. Nobody had given an order. The stew had done it. The regiment eats together.
+
+Grimes took it beautifully, because taking it beautifully was his whole trade. He drank his tea through Oluo's seminar, laughed at the correct intervals, complimented Petra's cooking — "Miss Ral, the Interior has *chefs* who couldn't" — and received in return a "How *kind*, do have more bread" of such flawless, weapons-grade politeness that Eld briefly stopped chewing to admire it. Then he rose, unhurried, straightening the pressed uniform, and made his exit warm and graceful and perfectly timed, a man with duties, a man at ease, a man among new friends.
+
+"Sergeant." The last smile came down the half-register to her, and the bangs fell boyishly, and he flicked them back. "Almanacs and poetry. I'll hold up my end soon — something worth trading, like I said. I always—" the tiniest calibrated pause, "—pay my debts."
+
+He turned. And in the dark of the window glass, where a turning man believes no one is looking at his face anymore, Súile — hunter's habit, never not watching the treeline — saw the smile drop. Not fade: *drop*, a half-degree early, all at once, like a tool set down. What crossed the glass in its place, for the length of one stride, had already stopped performing entirely.
+
+The door closed behind him. The mess exhaled by some collective centimeter.
+
+"Hm." Petra dabbed her mouth with composure, set down her spoon, and delivered the squad's after-action report in three flat words that would have made her captain proud: "I don't like him." A beat. The politeness war was, apparently, suspended for joint operations. Then — because she was still Petra, and because it had clearly been eating at her since mid-morning, and because the fox was *right there* and the stew had been genuinely excellent — she turned on the bench, eyes bright with something that was two parts rivalry and one part helpless professional respect, and lowered her voice.
+
+"The Captain logged your kill count himself. *Twice.* He checked the fletching." A pause. The bright eyes narrowed a fraction: the real question, the one under all the teacup-counting, arriving at last. "Sergeant. *Who taught you to shoot like that?*"

@@ -44,6 +44,10 @@ Levi's counter at the table: total institutional boredom (the wagons reframed as
 
 Second insistence (Súile, alone at the table): dropped register, conspirator's lean, a wedge line about the Captain — "man like that only sees what's written down" — and the repeat ask: *"What do the woods say at night?"* He is now one insistence past casual on day two.
 
+Stonewalled with "Hoot. Howl. Growl. Squeak." — his laugh arrived a sixteenth-note late (fetched from storage, not felt). Then the Special Operations Squad synchronized around the table without a word and boxed him in behind Oluo's game-preparation seminar. He exited beautifully, flagging the next escalation on his way out: *"I'll hold up my end soon — something worth trading... I always pay my debts"* (calibrated pause included). In the window glass, turning away, the smile *dropped* — set down like a tool, a half-degree early. Súile saw it.
+
+Squad verdict, via Petra, three words: "I don't like him."
+
 ## Threat notes
 
 - If he's a plant, his principal holds manifests and patrol schedules: depot clerk, MP officer, or quartermaster chain.

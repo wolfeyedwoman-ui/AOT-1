@@ -1,6 +1,6 @@
 # Story So Far
 
-*Last updated: mid–Chapter 6 — the dawn ride has reached the creek crossing.*
+*Last updated: mid–Chapter 7 — the mess table, Petra's question on the floor.*
 
 ## Synopsis
 
@@ -12,40 +12,30 @@ The real report comes after: Súile's detail went off-route before the storm bec
 
 That night, Levi crosses the keep to Súile's tower room — a forgotten library-study-and-apothecary lined with contraband pre-Wall folklore, all of which she has secretly read — bringing tea, Petra's honey dish, and salve for the shoulder injury she left out of her report. She tells him her callsign was her mother's nickname, in a language older than any of the banned books: foxes are trickster spirits who humble the proud. He tells her — a sliver, quickly shut away — about an inheritance of one first name and a way of sitting. The honey dish stays in the tower.
 
-**Fourth bell, the next morning.** Levi and Súile ride out disguised as two officers exercising horses, bound for the fork and the ridge — close enough to age the ruts and count the traffic, no closer.
+**Fourth bell, the next morning.** Levi and Súile ride out disguised as two officers exercising horses, bound for the fork and the ridge. On the road, Súile raises the regiment's newest wrinkle: **Voss Grimes**, a defected MP with a spotless file, transferred in just as a smuggling operation runs half a day from the keep. Levi's arithmetic: the transfer predates the barn's discovery, making Grimes a *precaution*, not a response — someone's eyes inside the Scouts. Countermeasures: rotation stands, second letter to Erwin, watch which way he angles. One prediction: Grimes will read "Pixis's girl" as the easiest door in the keep, and Súile's orders are to let him think it.
 
-On the road, Súile raises the regiment's newest wrinkle: **Voss Grimes**, a defected MP with a spotless file, transferred in just as a smuggling operation runs half a day from the keep. Levi's arithmetic is colder than suspicion: the transfer predates the barn's discovery, making Grimes a *precaution*, not a response — someone's eyes inside the Scouts. Countermeasures are set (rotation stands, second letter to Erwin, watch which way he angles), with one prediction: Grimes will read "Pixis's girl" as the easiest door in the keep. Súile's orders are to let him think it.
+**The ridge.** Súile leads a wind-first approach on Mandrake, her recon mare — horses in an alder brake, belly crawl through bracken, the field read through its birds. The glass shows the operation *moving* goods through (rut sets in and out, cut after the storm), the guard dog now staked, and a fifth horse in the paddock: a groomed cavalry-shod grey. Súile reads the crew's farrier as the **weak plank** — resents the visitor, fears him worse, wants out; to be taken breathing when the barn falls. Her call: **hold**. They get the face: a fiftyish cavalry officer out of uniform — cut-down boots, stiff left knee, parade seat, a **gold signet ring** turned and hidden before gloving, a dog that fawns on him. Levi's verdict: not a buyer — the **owner**, come in with the night run to inventory his own crates. He rides east toward the depot. Asked if she knows him: **"No."** One bird Levi still can't read.
 
-Passing the logging track, Levi clocks fresh ruts with rain-free edges — a wagon moved *after* the storm broke. The smugglers run on a clock that thunder doesn't stop.
+Súile runs the extraction through the woods (never touching the survey road) and builds the cover story with her bow: two rabbits and a wood pigeon by the time they reach the gate. Two officers went hunting; nothing else happened. The amended letter — face, ring, knee, heading, weak plank — rides with the noon courier.
 
-At the creek crossing, Levi hands over the lead: "From here, you're the captain. Show me how a fox walks." She does — wind-first routing on Mandrake, her recon mare, horses left in an alder brake, a belly crawl to the ridge, the field read through its birds. From the crest, the glass shows the operation is *moving* goods through (ruts in and out overnight), the dog now staked on a chain, and — the bad news — a fifth horse in the paddock: a groomed cavalry-shod grey with military saddle furniture. The uniform up the chain is visiting the barn in person, still inside, one breakfast away from having a face.
+**Back at the keep.** Grimes is watching the gate. First contact: Súile answers his courtyard charm by tossing him the bloody game bag — and buys a quarter-second look under the mask (snare-catch reflexes, a filing hatred, a cuff stain he refuses to check). Levi sends the spy to deliver Petra's dinner. Stable-aisle debrief: her read is **"Interest, and a grudge"**; his standing orders — every contact reported, no quiet corners, the gutting deferred until Erwin hangs the chain.
+
+**Midday, the mess.** Súile bathes (door bolted), skips the ordered sleep, waves off Wallis and Mina (a lucky jay feather; a whispered question about whether the barn cat is nice when nobody's looking), and walks into a meat-day mess hall. In rapid succession: Petra's brimming bowl with a needle folded in; Grimes's first manufactured coincidence — two cups of tea and a probe about "night wagons" sourced to "a fellow at the depot"; Levi arriving to check his half-followed order (the list gains tabs), accepting Petra's stew, and toasting "the sergeant kills clean." Levi's counter-probe reframes the wagons as boring tax graft and strips Grimes of his anonymous depot friend (**"Didn't catch it, sir"** — one quarter-second pause, one cuff-work). Grimes presses Súile a second time with a wedge line about the Captain; she answers *"Hoot. Howl. Growl. Squeak."* and calls Petra to the table — whereupon the Special Operations Squad synchronizes around the fox without a word. Grimes exits promising "something worth trading — I always *pay my debts*," and drops the smile a half-degree early in the window glass. Súile sees it.
+
+Petra's after-action report: **"I don't like him."**
 
 ## Open threads
 
-- **The barn.** Recon at the ridge is happening now. Ruts to age, traffic to count, bearings to confirm. No contact.
-- **The sealed letter.** En route to Erwin in Trost by courier, addressed to bypass adjutants. Erwin "collects exactly this kind of ugly" — and owns four illegal books himself.
-- **The Levi ledger ("the list").** Two pages and a heading. Page one: the eye roll, "mostly," the hips remark in front of a child, the skipped honey. Page two, item one: going in alone, in lightning, within rifle range. The list keeps until the barn is dealt with. He alphabetizes.
-- **Petra.** Devoted to the Captain, politely glacial to the Sergeant, counting teacups. She measured Súile's height "last time," which implies a standings table exists somewhere.
-- **Wallis and Mina.** Due to be back on the road by noon with their mended wagon. Mina knows a fox lady and a barn cat when she sees them.
-- **The contraband library.** Levi now knows Súile has read all of it. He has decided to be the sort of man who keeps that secret.
-- **The salve tin.** Hers now. So is the honey dish.
-
-- **Voss Grimes.** Defected MP, spotless (cleaned?) file, freshly arrived. Genuine, watcher, or fixer? Second sealed letter to Erwin pending. Predicted to make a run at Súile.
+- **The barn.** Face acquired, weak plank identified, traffic pattern confirmed. Erwin's amended letter is with the courier. Next moves belong to Erwin's back channels — and to whatever the smugglers' clock does next.
+- **The signet-ring rider.** Fiftyish cavalry officer, stiff left knee, rides east to the depot. Identity unknown. Súile says she doesn't know him.
+- **Voss Grimes.** Two probes in one lunch, an anonymous depot friend he wouldn't name, a promised "offering" incoming, and a grudge ledger with Súile's name and two dates in it. The squad has closed ranks around her without being told.
+- **The Levi ledger ("the list").** Four pages. Tabs. Alphabetized. Keeps until the barn's dealt with. Newest entries: the skipped sleep, the dimples, the room remark, the handkerchief remark. The gutting of Grimes is booked as *deferred compensation*.
+- **Petra.** Politeness war with Súile suspended for joint operations against Grimes; devotion to the Captain undimmed (he accepted her stew — three spoons stopped mid-air). Currently asking the real question.
+- **The contraband library.** Levi knows Súile has read all of it, and keeps the secret. Erwin owns four illegal books; Pixis left her true education out of the file on purpose.
+- **Súile's past.** Hunter, trapper, thief, pickpocket — hands no Garrison file explains. Levi isn't asking: "When you ever want to tell it, I'll drink the tea cold."
+- **Wallis and Mina.** Rolled out at noon, wagon mended. The fox lady has a lucky jay feather.
+- **Territory transferred.** The honey dish and the salve tin live in the west tower now.
 
 ## Current scene state
 
-Chapter 7 (*Pressed Cuffs*), the mess hall at midday. Súile bathed (door bolted), took the salve, skipped the ordered sleep — a passing grade, mathematically — waved off Wallis and Mina (who left her a lucky jay feather and a whispered question about whether the barn cat is nice when nobody's looking), and walked into a mess hall celebrating actual meat.
-
-In rapid succession: Petra's brimming bowl with a needle folded in it; Grimes's first manufactured coincidence — the silent bench-take, two cups of tea, and a probe about "night wagons" on the west road sourced to "a fellow at the depot"; and Levi arriving to check on an order he knows was half-followed, cataloguing the entire table in one pass. The list now has four pages and *tabs*.
-
-Súile met Levi's order-checking with bread, dimples, and "unless you'd rather me eat alone in my room?" — answered with the Oluo-outside-your-door threat (nuclear) and an arctic ruling that the regiment eats together. Levi accepted a bowl of Petra's stew (three spoons stopped mid-air; Petra radiant) and toasted the kill: "The sergeant kills clean."
-
-Then Levi ran his own fieldcraft on Grimes: reframed the night wagons as boring market-tax graft the Scouts don't police, tested for the flinch with a bland scalpel of an insult, and asked the depot friend's name. **"Didn't catch it, sir"** — a quarter-second pause and one cuff-work. Levi withdrew to captain's distance, leaving the trap baited.
-
-Grimes re-priced the room and pressed a second time, register dropped, with a wedge line about the Captain ("man like that only sees what's written down") and the repeat ask: **"What do the woods say at night?"** One insistence past casual, on day two. Súile's turn.
-
-They held, and got the face: a fiftyish cavalry officer out of uniform — cut-down cavalry boots, stiff left knee, parade seat, a gold signet ring turned and hidden before gloving, and a dog that belongs to him. Levi's verdict: not a buyer but the **owner**, come in with the night run to inventory his own crates. The man rode east toward the depot — the same direction as home.
-
-Súile's answer to "do you know him": **"No."** Her stillness was a hunter's stillness — one bird Levi still can't read. She then ran the extraction: off the track, through the woods on a route that never touched the survey road (dissolving the rear-guard problem), horses walked then mounted on her word — and the cover story built rather than told: bow uncased, two rabbits and a wood pigeon taken on the ride home. Two officers went hunting; nothing else happened this morning. The game goes to Petra for stew. Erwin's letter gets amended — the face, the ring, the knee, the eastward heading, the weak plank — and rides with the courier by noon.
-
-**Back at the keep, mid-morning:** Voss Grimes was watching the gate. First contact is underway in the courtyard — the cuff-fingering appraisal, then the theatrical bang-flick, then charm pitched at the whole courtyard with a half-register drop just for Súile: *"the sergeant the west rotation can't stop talking about... Good hunting, was it?"* He's been asking around about her since he arrived.
+Chapter 7 (*Pressed Cuffs*), the mess table, all squad now — Petra beside Súile, Eld on her other flank, Gunther and Oluo holding the ends, Levi in earshot at the wall table. Petra has asked the question under all the teacup-counting: the Captain checked Súile's fletching and logged her kill count twice, so **"Who taught you to shoot like that?"** Truth, deflection, or fox-story — entirely open. Súile's turn.

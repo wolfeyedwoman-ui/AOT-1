@@ -27,4 +27,5 @@ Turn-based role-play, kept as close to canon as the premise allows. Levi, the sq
 4. [The Thread](chapters/04-the-thread.md)
 5. [The West Tower](chapters/05-the-west-tower.md)
 6. [Fourth Bell](chapters/06-fourth-bell.md)
-7. [Pressed Cuffs](chapters/07-pressed-cuffs.md) — *in progress*
+7. [Pressed Cuffs](chapters/07-pressed-cuffs.md)
+8. [The Dusk Watch](chapters/08-the-dusk-watch.md) — *in progress*

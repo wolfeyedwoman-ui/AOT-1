@@ -1,7 +1,5 @@
 # Chapter 7 — Pressed Cuffs
 
-*(in progress)*
-
 The courtyard was busy with the ordinary day — Gunther and Oluo wheeling Wallis's mended wagon toward the stables, Mina orbiting it and narrating, Eld at the night book. And on the steps of the main hall, apart from all of it, stood a man neither of them had met and both of them had memorized: sandy hair with a cowlick dropping his bangs over his forehead, a uniform pressed sharp enough to file paper, all angles and hard lines under it. He was watching the gate. He'd *been* watching the gate — and as they rode in, his fingers moved to his cuff and worked it, slow, the gesture of a man pricing something at a market stall.
 
 Then the bangs got flicked back — theatrical, timed, a curtain going up — and Voss Grimes came down the steps to meet them with a smile that had charmed its way through fifteen years of interior garrisons, grey-blue eyes doing the arithmetic between the captain, the sergeant, the game bag, and the mud.
@@ -113,3 +111,21 @@ The door closed behind him. The mess exhaled by some collective centimeter.
 "Hm." Petra dabbed her mouth with composure, set down her spoon, and delivered the squad's after-action report in three flat words that would have made her captain proud: "I don't like him." A beat. The politeness war was, apparently, suspended for joint operations. Then — because she was still Petra, and because it had clearly been eating at her since mid-morning, and because the fox was *right there* and the stew had been genuinely excellent — she turned on the bench, eyes bright with something that was two parts rivalry and one part helpless professional respect, and lowered her voice.
 
 "The Captain logged your kill count himself. *Twice.* He checked the fletching." A pause. The bright eyes narrowed a fraction: the real question, the one under all the teacup-counting, arriving at last. "Sergeant. *Who taught you to shoot like that?*"
+
+"My mother was a hunter and my father was a trapper. I grew up in the Northern Mountains, on a small commune."
+
+"The Northern Mountains." Gunther said it the way soldiers name hard country — with respect and no desire to visit. "Utopia country. Mining cold up there. My first posting, men lost fingers standing *watch*." He looked at her with recalibrated eyes and pushed the bread down the table toward her, which was, from Gunther, a speech.
+
+"A *commune*," Oluo began, leaning back with the air of a man about to establish credentials. "My grandfather, as it happens, was practically a mountain man himself, he always said the true hunter's instinct can't be taught, it has to be — *hrk*." The tongue bite arrived, scheduled, punctual. Eld, without looking up, passed him a cloth napkin like a man feeding a toll gate.
+
+But Petra had gone quiet in a different way — the rivalry set down for a moment, something younger in her face. "Hunter *and* trapper. So you were raised by both halves of winter." She turned her cup between her hands. "My father's a merchant in the interior of Rose. Soft country. He writes me every week — he still thinks the Scouts are a phase I'll grow out of, keeps mentioning that the neighbor's son inherited the shop." A small, dry, genuinely funny smile — the first one she'd ever aimed at Súile without ammunition loaded behind it. "He'd faint at the Northern Mountains. He'd faint at *you*. I might arrange the introduction just to watch."
+
+It wasn't peace. The teacup ledger was still open, and both of them knew it. But somewhere between the tossed game bag and the closed ranks and *both halves of winter*, the war had acquired rules of civility — and possibly, given time and enough shared enemies with pressed cuffs, an alliance clause.
+
+At the wall table, Levi drank his tea and performed the audit no one had asked him for. *Mother a hunter. Father a trapper. Northern commune.* True — he'd have bet the stables on it; it fit the wind-reading and the snares in her voice when she talked about ground. And it was truth with the middle missing, cut clean as her map lines: nothing between the mountain commune and a Trost wall rotation, no bridge across the years where a hunter's daughter learned city hands, learned to lift a gear key, learned whatever it was Pixis had found and filed under nothing. The tea-cold offer stood. He set the missing chapter on the shelf next to it, unopened, and finished his cup.
+
+Then he stood, collected his bowl, and issued the afternoon on his way to the door: "Eld — the new transfer rides your rotation until further notice. Work him properly; he's had a *tiring* morning of making friends." Which assigned Voss Grimes to the personal supervision of the most watchful man in the regiment, disguised as routine. "Gunther, stores inventory. Oluo, the wagon tools go back where they came from, *counted*." And, at the door, without turning, flat as a shelf and pitched to carry:
+
+"Sergeant. You're fed. The word was *horizontal*. If I have to say it a third time, the seminar option activates."
+
+The afternoon went the way garrison afternoons go. The courier took the noon road east with a sealed letter riding innocently among requisition forms. Eld worked Grimes through gear checks with a thoroughness that was either mentorship or a strip search with extra steps, depending on how you held it. And up the spiral stair behind a bolted door, in a room that smelled of damp herbs and old paper, a fox finally slept — the jay feather tucked upright on the shelf beside nine stories about her kind, where the low sun caught it: lucky, blue-barred, slightly bent.

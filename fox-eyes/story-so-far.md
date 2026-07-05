@@ -1,6 +1,6 @@
 # Story So Far
 
-*Last updated: mid–Chapter 7 — the mess table, Petra's question on the floor.*
+*Last updated: opening of Chapter 8 — dusk, two raps at the bolted tower door.*
 
 ## Synopsis
 
@@ -22,7 +22,9 @@ Súile runs the extraction through the woods (never touching the survey road) an
 
 **Midday, the mess.** Súile bathes (door bolted), skips the ordered sleep, waves off Wallis and Mina (a lucky jay feather; a whispered question about whether the barn cat is nice when nobody's looking), and walks into a meat-day mess hall. In rapid succession: Petra's brimming bowl with a needle folded in; Grimes's first manufactured coincidence — two cups of tea and a probe about "night wagons" sourced to "a fellow at the depot"; Levi arriving to check his half-followed order (the list gains tabs), accepting Petra's stew, and toasting "the sergeant kills clean." Levi's counter-probe reframes the wagons as boring tax graft and strips Grimes of his anonymous depot friend (**"Didn't catch it, sir"** — one quarter-second pause, one cuff-work). Grimes presses Súile a second time with a wedge line about the Captain; she answers *"Hoot. Howl. Growl. Squeak."* and calls Petra to the table — whereupon the Special Operations Squad synchronizes around the fox without a word. Grimes exits promising "something worth trading — I always *pay my debts*," and drops the smile a half-degree early in the window glass. Súile sees it.
 
-Petra's after-action report: **"I don't like him."**
+Petra's after-action report: **"I don't like him."** Her real question — who taught Súile to shoot — gets a real answer: a hunter mother, a trapper father, a childhood commune in the Northern Mountains. Gunther pushes the bread down the table (a speech, from Gunther); Petra trades her merchant father's weekly letters and aims her first unarmed smile at the fox. Levi audits from the wall table: true, and truth with the middle missing — nothing between the commune and Trost. The tea-cold offer stands.
+
+**Afternoon into dusk.** Grimes is assigned to Eld's rotation ("work him properly"), the courier rides east with the sealed letter among requisition forms, and the fox finally sleeps — the lucky jay feather on the shelf beside the nine fox tales. At dusk, as promised, the order gets checked: two raps, one knuckle, at the bolted door.
 
 ## Open threads
 
@@ -38,4 +40,4 @@ Petra's after-action report: **"I don't like him."**
 
 ## Current scene state
 
-Chapter 7 (*Pressed Cuffs*), the mess table, all squad now — Petra beside Súile, Eld on her other flank, Gunther and Oluo holding the ends, Levi in earshot at the wall table. Petra has asked the question under all the teacup-counting: the Captain checked Súile's fletching and logged her kill count twice, so **"Who taught you to shoot like that?"** Truth, deflection, or fox-story — entirely open. Súile's turn.
+Chapter 8 (*The Dusk Watch*), the west tower at amber dusk. Súile has just woken, rested, behind a bolted door. Levi's promised order-check has arrived: two raps, one knuckle. The bolt — silence, an answer through the door, or thrown iron — is hers. Súile's turn.

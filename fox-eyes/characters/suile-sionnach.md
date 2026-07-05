@@ -13,6 +13,12 @@ Súile transferred from the Garrison to the Scouts over the objections of three 
 
 In the mess hall she is loud, insolent, quick, and constitutionally incapable of letting Captain Levi have the last word. In the field the brat evaporates: posture square, voice level, no wasted words. She will take a detail off-route on the strength of a wagon rut, go in alone on foot in a lightning storm, belly-crawl downwind of a smugglers' dog to read a stencil off a crate, and leave her own injuries out of the report — the last of which is now Page Two, Item One of the Captain's list.
 
+## Origins
+
+Born and raised on a small commune in the Northern Mountains — Utopia country, mining cold, where men lose fingers standing watch. Her mother was a hunter; her father was a trapper. "Raised by both halves of winter," as Petra put it.
+
+What the record doesn't hold: anything between the mountain commune and a Trost wall rotation — no bridge across the years where a hunter's daughter learned city hands. Levi has audited the gap, believes the commune story completely ("truth with the middle missing, cut clean as her map lines"), and keeps the tea-cold offer standing rather than ask.
+
 ## The name
 
 "Fox Eyes" was her mother's nickname for her, in a language she describes as ancient — pre-Wall, older than any contraband history book she's found. In the old tales foxes are trickster spirits: they behave the way they do to bring the proud down a peg before they skull themselves on doorframes. Levi's assessment: "That's not a nickname, that's a prophecy."

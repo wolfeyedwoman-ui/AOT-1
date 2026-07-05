@@ -40,4 +40,4 @@ Petra's after-action report: **"I don't like him."** Her real question — who t
 
 ## Current scene state
 
-Chapter 8 (*The Dusk Watch*), the west tower at amber dusk. Súile has just woken, rested, behind a bolted door. Levi's promised order-check has arrived: two raps, one knuckle — and she owes him a contact report she hasn't filed. The bolt, and the reckoning, are hers. Súile's turn.
+Chapter 8 (*The Dusk Watch*), the west tower, firelight. Súile answered the knock with a theatrical bow ("Welcome in, Captain" — filed under *T*, for theater). Levi brought the good teapot across the keep; the study chair by her hearth is quietly his now. He already knows about the doorstep — not from a witness, but from her own shelf: "Your vinegar bottle's missing." Not one degree angry; very slightly amused; patient as winter. The tea is steeping and the floor is hers: **"Report while it steeps, Fox Eyes. All of it."** Súile's turn.

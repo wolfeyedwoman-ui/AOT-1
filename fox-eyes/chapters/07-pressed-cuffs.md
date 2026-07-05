@@ -128,4 +128,24 @@ Then he stood, collected his bowl, and issued the afternoon on his way to the do
 
 "Sergeant. You're fed. The word was *horizontal*. If I have to say it a third time, the seminar option activates."
 
+Before she went up to sleep, Súile made one delivery.
+
+His quarters were off the barracks corridor, second door — new-transfer housing, thin walls, a latch that still smelled of the last man. She came balanced like a market girl: bowl, jug, the small apothecary bottle from her tower shelves, the tin. She knocked.
+
+The door opened faster than a resting man's door should — and there was a half-second, before the charm got its boots on, when Voss Grimes was just a lean sharp-angled silhouette against a room she read in one sweep: kit stowed to parade standard, bunk squared, everything regulation-perfect. And under it, riding the room's warm air out into the corridor, faint but present at midday on his second day of service: spirits. Cheap ones, recently. The pressed uniform had a cellar.
+
+"For the cuff." She loaded his arms before he'd finished deciding what expression to wear — bowl, jug, bottle, tin, stacked with the efficiency of someone provisioning a snare line, his reaching fingers closing on tin rather than anything warmer. "Cold water first. Then the baking soda. Then the white vinegar. Rinse and repeat. The stain should work itself out."
+
+And she got to watch it happen: the machinery *hunting*. Because the gift refused to price. The mark had come to *him* — flattering, promising, the door-that-opens reading, and the grey-blue eyes warmed to start that story. But the contents kept talking over it: *I saw the stain. I saw you not look at it. I watched you decide, and here is a recipe, because nothing about you is invisible to me, delivered with my compliments.* Courtesy, inserted precisely between the ribs of a performance, by a woman smiling with two dimples from his doorstep. For one full breath, Voss Grimes stood holding a bowl and a tin like a man at a market who has just been handed his own stolen watch, gift-wrapped.
+
+The recovery, when it came, was very good — they always were. "Well." The laugh, warm gravel, only a sixteenth-note late this time; he was learning her tempo. "And here they told me the Scouts had no *domestic* side. You notice everything, don't you, Sergeant." The bangs came down as he tilted his head, boyish, and the voice found its half-register: "This is twice now I'm in your debt — the stew and the laundry. Dangerous arithmetic. Come in while I—"
+
+"The soda wants a paste," she said, to the tin, pleasantly, already turning. "Two parts water. Don't cook it."
+
+"—then I'll return the tin," he finished smoothly, to her back, recontracting the debt into a delivery, a reason, a future knock on a different door. "I always pay my debts, Sergeant. Sleep well."
+
+The door clicked. She was four steps down the corridor when she heard it through the thin wood — a pause, exactly as long as a man listening to make sure she'd gone. And then, soft, unmistakable to a poacher's ear: glass on glass. The charm going back in its case; the other inventory resuming.
+
+Somewhere behind her, two doors down, a floorboard settled — the sound old buildings make on their own, or the sound they make under a shifted weight. The corridor, when she glanced back, held nothing but afternoon light.
+
 The afternoon went the way garrison afternoons go. The courier took the noon road east with a sealed letter riding innocently among requisition forms. Eld worked Grimes through gear checks with a thoroughness that was either mentorship or a strip search with extra steps, depending on how you held it. And up the spiral stair behind a bolted door, in a room that smelled of damp herbs and old paper, a fox finally slept — the jay feather tucked upright on the shelf beside nine stories about her kind, where the low sun caught it: lucky, blue-barred, slightly bent.

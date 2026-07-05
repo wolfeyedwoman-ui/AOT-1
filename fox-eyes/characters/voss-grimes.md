@@ -48,6 +48,19 @@ Stonewalled with "Hoot. Howl. Growl. Squeak." — his laugh arrived a sixteenth-
 
 Squad verdict, via Petra, three words: "I don't like him."
 
+## The doorstep (Chapter 7, early afternoon)
+
+Súile brought stain-removal supplies to his quarters — bowl, water jug, white vinegar, baking-soda tin — with the recipe delivered deadpan: a gift that refused to price. It said *I saw the stain, I saw you not look at it, and nothing about you is invisible to me*, wrapped in perfect courtesy. For one full breath the machinery visibly hunted; the recovery laugh was only a sixteenth-note late — he's learning her tempo.
+
+Intelligence gathered at his door:
+
+- Kit and bunk at parade standard — and the room smelled of cheap spirits at midday on his second day of service. The pressed uniform has a cellar.
+- The door opened faster than a resting man's should.
+- His touch-test failed: fingers closed on the tin, not her wrist; the invitation inside ("Come in while I—") got a laundry instruction over the top of it.
+- He instantly recontracted the gift into a debt requiring future contact: "I'll return the tin. I always pay my debts."
+- Through the thin door after it closed: a listening pause, then glass on glass. The other inventory resuming.
+- A floorboard settled two doors down as she left. Possible witness, unconfirmed.
+
 ## Threat notes
 
 - If he's a plant, his principal holds manifests and patrol schedules: depot clerk, MP officer, or quartermaster chain.

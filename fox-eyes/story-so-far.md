@@ -24,7 +24,7 @@ Súile runs the extraction through the woods (never touching the survey road) an
 
 Petra's after-action report: **"I don't like him."** Her real question — who taught Súile to shoot — gets a real answer: a hunter mother, a trapper father, a childhood commune in the Northern Mountains. Gunther pushes the bread down the table (a speech, from Gunther); Petra trades her merchant father's weekly letters and aims her first unarmed smile at the fox. Levi audits from the wall table: true, and truth with the middle missing — nothing between the commune and Trost. The tea-cold offer stands.
 
-**Afternoon into dusk.** Grimes is assigned to Eld's rotation ("work him properly"), the courier rides east with the sealed letter among requisition forms, and the fox finally sleeps — the lucky jay feather on the shelf beside the nine fox tales. At dusk, as promised, the order gets checked: two raps, one knuckle, at the bolted door.
+**Afternoon into dusk.** Before sleeping, Súile makes a doorstep delivery to Grimes's quarters: stain-removal supplies for the cuff, with the recipe — a gift that says *nothing about you is invisible to me* in perfect courtesy. His machinery visibly hunts for a price; his touch-test fails; he recontracts the gift into a debt ("I'll return the tin — I always pay my debts"). Through the closed door: a listening pause, then glass on glass — the room already smelled of spirits at midday. A floorboard settles two doors down; possible witness. Meanwhile Grimes is assigned to Eld's rotation ("work him properly"), the courier rides east with the sealed letter among requisition forms, and the fox finally sleeps — the lucky jay feather on the shelf beside the nine fox tales. At dusk, as promised, the order gets checked: two raps, one knuckle, at the bolted door — with one bookkeeping matter outstanding: *every contact reported*, and the doorstep contact is on nobody's desk but hers.
 
 ## Open threads
 
@@ -40,4 +40,4 @@ Petra's after-action report: **"I don't like him."** Her real question — who t
 
 ## Current scene state
 
-Chapter 8 (*The Dusk Watch*), the west tower at amber dusk. Súile has just woken, rested, behind a bolted door. Levi's promised order-check has arrived: two raps, one knuckle. The bolt — silence, an answer through the door, or thrown iron — is hers. Súile's turn.
+Chapter 8 (*The Dusk Watch*), the west tower at amber dusk. Súile has just woken, rested, behind a bolted door. Levi's promised order-check has arrived: two raps, one knuckle — and she owes him a contact report she hasn't filed. The bolt, and the reckoning, are hers. Súile's turn.

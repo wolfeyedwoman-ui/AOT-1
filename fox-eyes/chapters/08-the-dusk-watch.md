@@ -4,4 +4,6 @@
 
 She woke to the tower going amber, the courtyard sounds shifting to the dusk watch. And then, over the last of the light:
 
-Two raps. One knuckle. Unhurried, evenly spaced — the cadence of a man auditing a door he already knew was bolted, exactly as promised, checking on an order.
+Two raps. One knuckle. Unhurried, evenly spaced — the cadence of a man auditing a door he already knew was bolted, exactly as promised, checking on an order he'd given twice.
+
+And between Súile and that cadence sat one small bookkeeping matter: *every contact reported* — and a doorstep delivery to the asset, made and slept on, currently on nobody's desk but hers.

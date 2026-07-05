@@ -75,3 +75,25 @@ And while she glassed the smoking man, Levi added the other thing — flat, quie
 "One more entry for the record, Fox Eyes. Garrison file says wall rotation, Trost, six years, commendations. Files like that don't teach hands like yours. You've lifted three things off me since you transferred to see if I'd notice — the chalk, the spare gear key, and the handkerchief you put *back*, which was the impressive part." No accusation in it; if anything, the opposite — the professional courtesy of one set of educated fingers acknowledging another. "Pixis found you somewhere he didn't write down. Old drunk's the best judge of people inside three Walls; he doesn't leave things out by accident, he leaves them out on *purpose*." The grey eyes never left the barn. "I'm not asking. When you ever want to tell it, I'll drink the tea cold. But up here, on my flank, I'd rather know what I'm working with than be polite. Hunter's patience, thief's hands, and you hear what a man feels before he knows it himself."
 
 "So. Work, Fox Eyes." The faintest tilt of his chin at the valley, at the smoking man, at the door worth two backward glances. "What does the ground say, what does his face say — and how long do we get to stay?"
+
+She settled the glass, and her voice came down to that register the field taught her — under the wind, shaped for one set of ears.
+
+"Leather apron, burn marks on the forearms. He's the crew's hands — farrier work, wheel work. If anything on this operation breaks, he's the one who fixes it, and when the grey gets saddled, he's the one who'll do it." A slow breath in over the glass. "Now the feelings. Resentment first. He checked that stake with his boot because someone told him to check it, and he used the boot so he wouldn't have to touch the dog's chain with his hands. He'll do the visitor's chores, but he won't touch the visitor's animal one finger more than ordered. That's not fear of the dog. That's contempt for the owner, wearing caution's coat."
+
+"Second — the glances. A man checking whether he's watched looks *around*. He looked *back*, chin tucked, twice, quick. He's not guilty; he's *listening*. Waiting to be called, dreading the voice that'll do it. And the smoke — cupped in the palm, old habit, poacher's habit or a soldier's, but look at the draw. Fast. Greedy. No pleasure in it. That's not a man enjoying the morning, Captain. That's a man medicating. He hates the one inside, fears him worse, and wants out of this work so badly it's coming off him like the smoke is." The glass held steady. "That's your weak plank. When this barn falls, that one talks. Ten minutes beside him at a market stall and I'd have his life story and his knife, and he'd thank me for the conversation."
+
+"And your clock: saddle furniture's *laid out* on the rail, not stored — bit, blanket, in order. Horse groomed, fed, dry. The apron's loitering in the cold within earshot because he's waiting for the word to saddle. The visitor came in with the night wagon, and he's not waiting for dark to leave — he'll ride out in daylight, dressed like a man with somewhere honest to be." She lowered the glass a fraction; the yellow eyes cut sideways to Levi. "Ground says an hour. His shoulders say less. We hold."
+
+Then, because she was still Súile: "And the handkerchief went back as a *courtesy*, Captain. You starch them. It'd have been like stealing a roof tile."
+
+Levi absorbed the whole read without a flicker — but something behind the grey eyes was setting type, the way it had when her map went down line by line in his office. Erwin collected ugly things; Levi collected *competence*, and the morning was making him wealthy.
+
+"Then we hold." No hesitation; her ground, her call, ratified at once. "And the weak plank goes in the letter with the rest — leather apron, burn-scarred forearms, poacher's hands, hates his master. When this barn falls, that one's taken breathing. Erwin will want him singing, not hanging." A pause, dry as the bracken. "The handkerchief remark goes on the list."
+
+They held. The cold came up out of the ground through their coats, and the wind stayed honest, and the crows kept their unhurried circuit — the whole valley still reporting *nothing moving* in that language only one of them read fluently. Levi lay beside her with a sniper's patience, motionless but for his breath, watching the door.
+
+It was the dog that told them first. She felt it through the glass before the door ever moved — the animal's head coming up off its paws, ears cranking forward, the chain drawing quietly taut toward the barn.
+
+"Dog's up," she breathed.
+
+The latch lifted.

@@ -34,4 +34,6 @@ At the creek crossing, Levi hands over the lead: "From here, you're the captain.
 
 ## Current scene state
 
-Chapter 6, prone on the ridge line in early morning light, the field glass in Súile's hands. A big man in a leather apron has stepped out of the barn — wary of a dog that isn't his, glancing twice at the closed door behind him. The visiting rider's grey stands in the paddock; its owner is still inside. Levi has asked for two things: **her read of the men below** (what the smoking man is feeling, and about whom), and **her call — hold for the face, or fold** before mid-morning makes two absent officers a fact Grimes can collect. He has also gently put on record what he knows about her hands (the chalk, the gear key, the returned handkerchief) and what Pixis left out of her file on purpose. He isn't asking. Next turn is hers.
+Chapter 6, prone on the ridge line. Súile has delivered her read — the leather-apron man is the crew's farrier and its weak plank: resents the visitor, fears him worse, wants out; when the barn falls he's to be taken breathing. Her call was **hold**: the grey is groomed and its saddle furniture laid out, the visitor came with the night wagon and will leave in daylight within the hour. Levi ratified it, and added the handkerchief remark to the list.
+
+They held. The dog's head has come up, the chain has drawn taut toward the barn, and **the latch has just lifted** — the visitor's face is one heartbeat away. Next turn: the reveal.

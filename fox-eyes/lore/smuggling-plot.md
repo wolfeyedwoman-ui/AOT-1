@@ -32,7 +32,9 @@ From the ridge (Súile's approach: wind-first route, horses in the alder brake, 
 - **The dog is now staked outside on a chain** — procedure tightened since Súile's first visit. They may have found her sign on the creek bank.
 - Stovepipe drawing; four men accounted for by boot traffic.
 - **A fifth horse in the paddock**: tall grey, clean-legged, groomed, military saddle furniture on the rail, cavalry-shod. Nobody in that barn owns it. *The uniform up the chain is visiting, and is still inside.*
-- Decision pending on the ridge: hold for the rider's face, or fold before mid-morning makes two absent officers a collectible fact at the keep (where Grimes is watching).
+- **The weak plank.** Súile's read of the man in the leather apron: the crew's farrier/wheelwright, burn-scarred forearms, poacher's smoking habit. Resents the visitor (checked the dog's stake with his boot, won't touch the chain), fears him worse (listening for a summons, medicating with the smoke), wants out. When the barn falls, he's to be taken breathing — Erwin will want him singing, not hanging. He goes in the second letter.
+- **The call: HOLD.** Saddle furniture laid out in order on the rail, horse groomed and dry, the farrier loitering within earshot waiting for the word to saddle. The visitor came in with the night wagon and will leave in daylight, dressed like a man with somewhere honest to be. "Ground says an hour. His shoulders say less."
+- As of the chapter's current beat: the dog's head is up, the chain taut toward the barn, and **the latch has just lifted**. The face is one heartbeat away.
 
 ## The Voss Grimes question
 

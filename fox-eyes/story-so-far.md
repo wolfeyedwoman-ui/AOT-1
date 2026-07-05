@@ -34,9 +34,11 @@ At the creek crossing, Levi hands over the lead: "From here, you're the captain.
 
 ## Current scene state
 
-Chapter 7 (*Pressed Cuffs*), end of the stable-aisle debrief. Her read: **"Interest, and a grudge."** Levi's unpacking: the interest is the plan working — expect a manufactured offering inside the week, everything he brings assumed stocked by his principal ("the fish will smell of the barrel"); the grudge is bookkeeping by a man whose kind always collects. Two standing orders: every contact reported, no meetings in quiet corners — the gutting is *deferred compensation*, payable after Erwin hangs the chain. Petra has received the spy and the dinner in the kitchen (ladle set down like a rifle being cocked). Levi's parting order: salve, sleep until noon, then wave Wallis and Mina off.
+Chapter 7 (*Pressed Cuffs*), the mess hall at midday. Súile bathed (door bolted), took the salve, skipped the ordered sleep — a passing grade, mathematically — waved off Wallis and Mina (who left her a lucky jay feather and a whispered question about whether the barn cat is nice when nobody's looking), and walked into a mess hall celebrating actual meat.
 
-Open to play next: the noon farewell, the ordered sleep, or Grimes's first manufactured coincidence. Súile's turn.
+In rapid succession: Petra's brimming bowl with a needle folded in it; Grimes's first manufactured coincidence — the silent bench-take, two cups of tea, and a probe about "night wagons" on the west road sourced to "a fellow at the depot"; and Levi arriving to check on an order he knows was half-followed, cataloguing the entire table in one pass. The list now has four pages and *tabs*.
+
+Paused with Grimes's question hanging, Levi parked at the head of the table, and Petra watching all three from the pot. Súile's turn.
 
 They held, and got the face: a fiftyish cavalry officer out of uniform — cut-down cavalry boots, stiff left knee, parade seat, a gold signet ring turned and hidden before gloving, and a dog that belongs to him. Levi's verdict: not a buyer but the **owner**, come in with the night run to inventory his own crates. The man rode east toward the depot — the same direction as home.
 

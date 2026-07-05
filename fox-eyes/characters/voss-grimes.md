@@ -34,6 +34,12 @@ Súile answered his opening charm with a nod and an underhand toss of the bloody
 - He priced her openly (mud, bow, eyes — the whole inventory), leaned a hair too hard on "*clean* kills," filed the name "fox lady" from Mina's shouting, and exited promising to bring her "something *I* caught."
 - His parade-crisp deference to Levi sat on him exactly the way the signet-ring rider's civilian coat sat on that man: correctly, and like a costume.
 
+## The mess hall probe (Chapter 7)
+
+Within two hours: cuffs laundered or replaced — the stain *unhappened*. First manufactured coincidence executed at lunch: the silent bench-take across from Súile, two cups of tea ("peace offering"), the settling-in body language of invented long custom. Then the probe, wrapped in flattery, sourced to "a fellow at the depot": *the west road's gone strange lately — night wagons... you'd know the ground better than anyone. What's your read?*
+
+Read on the probe: he named the night wagons himself, unprompted, on day two — either testing what the Scouts have noticed, or dangling bait his principal packed. Either way, the depot contact is now on the record.
+
 ## Threat notes
 
 - If he's a plant, his principal holds manifests and patrol schedules: depot clerk, MP officer, or quartermaster chain.

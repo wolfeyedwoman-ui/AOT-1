@@ -26,4 +26,5 @@ Turn-based role-play, kept as close to canon as the premise allows. Levi, the sq
 3. [The Fox Lady and the Barn Cat](chapters/03-the-fox-lady-and-the-barn-cat.md)
 4. [The Thread](chapters/04-the-thread.md)
 5. [The West Tower](chapters/05-the-west-tower.md)
-6. [Fourth Bell](chapters/06-fourth-bell.md) — *in progress*
+6. [Fourth Bell](chapters/06-fourth-bell.md)
+7. [Pressed Cuffs](chapters/07-pressed-cuffs.md) — *in progress*

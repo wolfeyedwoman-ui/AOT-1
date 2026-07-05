@@ -1,7 +1,5 @@
 # Chapter 6 — Fourth Bell
 
-*(in progress)*
-
 Fourth bell came iron-dark and washed clean, the courtyard puddles holding the last stars. Levi was of course already in the stables, of course already saddled — both horses, hers as well, girth-checked twice, the plain unoiled cloak he'd prescribed draped over her saddle horn. He himself had gone anonymous: no wings, no cravat, a shapeless brown coat that had probably been chosen by a quartermaster with a grudge. It made him look like a tenant farmer's short, murderous cousin.
 
 He handed her the reins, mounted, and walked his horse to the gate, where the sentry — well briefed — studied the horizon in the opposite direction with tremendous professionalism.
@@ -123,3 +121,23 @@ Levi watched him diminish up the track, and only when the hoof-sound was gone un
 "Fox Eyes." Barely sound at all. "The seat, the knee, the ring. Tell me straight—"
 
 "—do you know him?"
+
+"No," she said. "Fall back — off the track, through the woods, back to the fortress. Hunting excursion. I have my bow on my horse and daggers hidden on my outer thighs, wrapped under the pant seams. We'll be fine. Back to the keep. Let's go. Slow, steady — walk your horse first, I'll tell you when to mount. Stay low. Use the horse for cover."
+
+Levi took the single syllable the way he took a knife hand-off — checked its edge once, found it honest, moved. The stillness he'd read off her had been a hunter's stillness, nothing more; somewhere behind the flat grey eyes a marginal note was made — *one bird on this ridge I still can't read* — and filed with what might, in a better-lit room, have been satisfaction.
+
+Then she was giving orders, and Captain Levi Ackerman, humanity's strongest soldier, did the thing that separated actual soldiers from legends with wings on their backs: he shut up and followed them.
+
+Back off the crest on their bellies, the wet bracken closing over the valley and the barn and the whole morning's ugly arithmetic. Down through the alders at a crouch. She had the girths tightened with movements that made no more noise than the trees did, and then they were walking — her word — horses between their bodies and the eastern sightlines, Mandrake drifting at her shoulder like a piece of the woods that had decided to come along, the grey gelding minding his manners because two fingers had explained the situation to him once already and he'd believed them.
+
+She took them west and then south, wide, threading the timber — no track, no line a mapmaker would recognize, and Levi understood the shape of it inside a hundred meters: her route never touched the survey road at all. The rear-guard problem, dissolved rather than solved. The rider with the signet ring could canter his parade seat all the way to the depot and never cross so much as a bent blade of their passing.
+
+"Mount," she said, when the ground said so — a fold of dead ground with a hazel screen, silhouettes eaten by the hill behind them. They rode.
+
+And because a cover story is a thing you *build*, not a thing you say, the bow came off her saddle uncased. Levi watched the transformation with the same cataloguing attention he'd given the map: the reins going to her knees, Mandrake holding a gait smooth as poured water, and Sergeant Súile Sionnach becoming, for two unhurried kilometers of open birch wood, exactly what the gate log would say she was. The first rabbit never heard her. The second bolted and made it four meters. A wood pigeon came off a low branch into the game bag with an arrow through it that she'd loosed, as far as he could tell, without aiming — the way other people blink.
+
+"Tch." He said it quietly, to the morning at large. "The Garrison had you standing on a *wall*." It was the closest thing to poetry anyone had gotten out of him in a year.
+
+The rest he laid out at a walking pace, in the working register, while the keep's towers came up grey over the treeline: the second letter amended before the courier rode — the face, the ring, the knee, the cut-down boots, the eastward heading, the weak plank with the burn-scarred arms. Courier by noon, sealed, adjutant-proof. At the keep: nothing. No squad briefing, no map-room hours, no change in her rotation or his temper. "We went hunting, Sergeant. You're insufferably good at it, I'm in a fouler mood than usual because the woods were damp. Nothing else happened this morning." A beat. "Give the game to Petra. Rabbit stew feeds the squad, the story feeds itself, and the look on her face when the fox brings her dinner feeds *me*."
+
+They came in through the gate at mid-morning like the most boring two riders in Wall Rose: an ill-tempered captain, a mud-flecked sergeant, three head of game, and one sentry professionally failing to find any of it interesting.

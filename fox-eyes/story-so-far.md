@@ -34,7 +34,9 @@ At the creek crossing, Levi hands over the lead: "From here, you're the captain.
 
 ## Current scene state
 
-Chapter 7 (*Pressed Cuffs*), the stable aisle. Súile answered Grimes's charm with a nod and a tossed game bag — and bought a quarter-second look at the real man underneath (see his character file). Grimes is off delivering the squad's dinner to Petra with blood on his cuff; Levi and Súile have the stables to themselves, and he's just asked for her full read: **"What did the bag buy, Fox Eyes?"** Next turn is hers.
+Chapter 7 (*Pressed Cuffs*), end of the stable-aisle debrief. Her read: **"Interest, and a grudge."** Levi's unpacking: the interest is the plan working — expect a manufactured offering inside the week, everything he brings assumed stocked by his principal ("the fish will smell of the barrel"); the grudge is bookkeeping by a man whose kind always collects. Two standing orders: every contact reported, no meetings in quiet corners — the gutting is *deferred compensation*, payable after Erwin hangs the chain. Petra has received the spy and the dinner in the kitchen (ladle set down like a rifle being cocked). Levi's parting order: salve, sleep until noon, then wave Wallis and Mina off.
+
+Open to play next: the noon farewell, the ordered sleep, or Grimes's first manufactured coincidence. Súile's turn.
 
 They held, and got the face: a fiftyish cavalry officer out of uniform — cut-down cavalry boots, stiff left knee, parade seat, a gold signet ring turned and hidden before gloving, and a dog that belongs to him. Levi's verdict: not a buyer but the **owner**, come in with the night run to inventory his own crates. The man rode east toward the depot — the same direction as home.
 

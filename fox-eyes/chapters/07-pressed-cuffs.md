@@ -31,3 +31,21 @@ Levi watched him go, then took Mandrake's rein and walked with Súile toward the
 "Nice toss. Petra gets dinner and a spy delivers it — the squad eats and I didn't have to write a single order." A pause, buckle, strap. "Now. I saw the catch and the laugh. You saw more, because that's what you're for." The grey eyes came over the mare's back, level with hers, waiting the way he waited on the ridge.
 
 "What did the bag buy, Fox Eyes?"
+
+"Interest," she said. "And a grudge."
+
+"Tch. Four words." Levi went on working down the mare's girth strap, unhurried. "Erwin gives me eight pages to say less."
+
+He hung the bridle, and did the audit aloud, because that was the compact between them now — she compressed, he unpacked, and somewhere in the middle sat the truth.
+
+"*Interest.* Good. Interest is the plan working — a man angling at you is a man showing us his angle. He announced the next move himself: he'll bring you something *he* caught. So expect an offering inside the week — intel, a gift, a confidence, something shaped exactly like the thing a lonely transferred sergeant is supposed to want. Take it. Warm enough to keep him casting, cold enough that he has to keep improving the bait. Everything he hands you goes on my desk within the hour, and we assume every piece of it was packed by whoever holds his leash — nothing that man 'catches' will be wild. It'll all be stocked." A beat. "The fish will smell of the barrel."
+
+"Now *the grudge*." He came around Mandrake's head and stood square to Súile, and the working register acquired that one degree of frost it kept for exactly one subject. "That's the part you don't shrug at, Fox Eyes, so listen. I've known men like that my whole life; the Underground grew them like mold. Charm's the first tool, and it's a good one — but it's a *tool*, and when it stops working, men like him don't retire it gracefully. They escalate on a schedule. Charm. Then gifts. Then pressure. Then the version of him that looked out for a quarter second when the rabbit touched his cuff." The grey eyes were flat and absolutely serious. "He wrote you into his ledger today with the date beside it. That's not drama. That's *bookkeeping*, and his kind always collects."
+
+"So. Two standing orders, and they're operational, not sentimental." He held up one finger. "Every contact reported — every word, every gift, every accident of timing where he happens to be where you are. He'll manufacture coincidences; I want the pattern on paper." A second finger. "You don't take meetings with him in quiet corners. Not because you can't fold him into a saddlebag — I've seen your close work and I'd pay to watch. Because if he forces your hand early, we lose the barn, the signet ring, the depot, and the leash-holder, and all we get for it is one dead narcissist and a burned operation." A pause, exactly level. "Gut him *after* Erwin hangs the chain. Consider it deferred compensation. It goes on the list."
+
+From across the courtyard, through the kitchen arch, came the muffled sound of first contact: Petra's voice, bright and terribly polite, saying something that included the words *the sergeant's kill, how* generous — followed by the precise clink of a ladle being set down the way other people cock a rifle. Levi's face did not change. "They'll get along," he said, with the flat certainty of a man who has just left two loaded traps in one room and locked the door.
+
+He shouldered his own tack and paused at the aisle's end — and the frost went out of the register, one degree, for exactly one sentence.
+
+"You've been on your feet since fourth bell on a stone-bruised shoulder, and last night you were too weary to fight. Letter goes with the courier at noon; nothing in this keep needs the fox before dusk. Salve, then sleep — that's an order I'll check on." A beat, and the door of that closed too, smooth as ever, as he walked out into the light: "Wallis rolls out at noon. The kid will want her fox. Sleep first. Wave after."

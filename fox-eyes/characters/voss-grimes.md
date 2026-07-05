@@ -40,6 +40,10 @@ Within two hours: cuffs laundered or replaced — the stain *unhappened*. First 
 
 Read on the probe: he named the night wagons himself, unprompted, on day two — either testing what the Scouts have noticed, or dangling bait his principal packed. Either way, the depot contact is now on the record.
 
+Levi's counter at the table: total institutional boredom (the wagons reframed as routine market-tax dodging the Garrison naps on), a bland scalpel of an insult to test for the flinch, and a direct ask for the depot friend's name. Result: **"Didn't catch it, sir"** after a quarter-second pause, plus one cuff-work. The anonymous friend is now a hole in Grimes's story that Grimes knows Levi noticed.
+
+Second insistence (Súile, alone at the table): dropped register, conspirator's lean, a wedge line about the Captain — "man like that only sees what's written down" — and the repeat ask: *"What do the woods say at night?"* He is now one insistence past casual on day two.
+
 ## Threat notes
 
 - If he's a plant, his principal holds manifests and patrol schedules: depot clerk, MP officer, or quartermaster chain.

@@ -67,3 +67,25 @@ New cuffs. Laundered or replaced inside two hours — the stain simply *unhappen
 "Sergeant." The mess door had opened without anyone hearing it, because that was how the Captain used doors. Levi crossed the hall with his teacup already in hand, in the foulest public temper on record, and stopped at the head of their table radiating the specific cold of a man betrayed by subordinate bedding arrangements. "Funny. I gave a soldier an order at mid-morning. *Salve, then sleep.* And here's something wearing her uniform, upright, eating stew." The grey eyes flicked once across the table — one pass, cataloguing the two cups, the seat choice, the fresh cuffs, the shape of the question she'd just been asked, *everything* — and returned to Súile, flat as a frozen pond. "The list has a fourth page now, Fox Eyes. It has *tabs*."
 
 He took a slow sip, palm around the rim, and did not leave.
+
+She sat back, plopped a piece of bread in her mouth, chewed, swallowed. "A hunter needs to eat. I'll sleep when I'm full and be better for it." She smiled — two dimples, cheeky. "Unless you'd rather me eat alone in my room?"
+
+"Tch." Levi let the dimples bounce off him like arrows off the Wall — visibly, publicly, entirely unmoved, in the way that anyone who had ever played cards with him would recognize as a man declining to show his hand. "What you *are*, Sergeant, is a soldier who treats direct orders like the stew — something to pick the good bits out of." A sip, slow, glacial. "Eat, then. And since we're negotiating terms now: if you're not horizontal by the time the dusk watch changes, I'll post Oluo outside your door and tell him you *love* hearing about proper wild game preparation." Across the mess, Oluo straightened with visible pride at what he took for a compliment. The threat landed on Súile as intended: nuclear.
+
+"As for your *room*—" one more sip, arctic, "—the regiment eats together. Even the ones with no discipline. *Especially* those."
+
+Petra materialized at his elbow with a bowl — modest, precise, exactly how he took it, because of course she knew exactly how he took it — and Levi did something that stopped three spoons in midair: he accepted it. "The sergeant kills clean," he said flatly, to the stew, which was as close as the Scout Regiment came to a state banquet toast. Petra returned to the pot with the radiance of a decorated veteran and shot Súile a look that said the point had been scored and *logged*.
+
+Then, only then, without hurry, Levi's attention arrived at the fresh-pressed uniform on the bench. And here Súile got to watch the other fieldcraft — hers was wind and birds; his was this.
+
+"Night wagons." He said it the way other men said *paperwork*. Bored. Terminally, institutionally bored. "Depot gossip reaches this keep two beers late and three facts short, Grimes — you'll learn that by your second week. Farmers move goods at night to dodge the market tax at the fork; the Garrison naps on it because the depot clerks get a cut of the naps. It's been the same racket since before you enlisted." A slow sip, eyes half-lidded. "The Scouts don't police wagon taxes. We die outside the Walls; the graft inside them is the Military Police's dinner, as I'd have thought *you'd* remember." The insult was administered with surgical blandness — and it was also, Súile knew, a scalpel: *show me the flinch*. "But since you're sharing. A day and a half in the regiment and you've already got a *fellow at the depot*. Fast friend-making, for a man who left the Interior to get away from people." The grey eyes came up, flat, incurious, deadly. "What's his name? I'll send him for the wagon-tax ledgers. Since the topic interests you."
+
+The pause that followed was one-quarter of a second long, exactly the length of a rabbit's leg touching a cuff.
+
+"Didn't catch it, sir. Talkative type, bought me a beer — you know how the depot men are." The recovery was seamless, warm gravel and self-deprecation, the bangs falling boyishly as he shrugged. But the fingers had gone to the cuff, and worked it, once.
+
+"Mm." Levi collected his bowl and his cup and moved off to his own table by the wall — captain's distance, message delivered — leaving the trap exactly as baited as he'd found it, minus one anonymous friend.
+
+Grimes watched him go. Something in the grey-blue eyes re-priced the room — and then he leaned in, forearms on the table, the voice dropping to that half-register reserved for her, the smile a degree warmer and one insistence past casual now, less question than invitation to conspire.
+
+"Runs a *tight* table, your captain. All ledgers and lists — man like that only sees what's written down." A conspirator's beat. "But you were saying, Sergeant. Before we were audited. The west ground — *your* ground. A hunter who rides out before fourth bell sees things the ledgers don't." The cuff, again. The eyes didn't blink. "What do the woods say at night?"

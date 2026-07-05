@@ -38,7 +38,11 @@ Chapter 7 (*Pressed Cuffs*), the mess hall at midday. Súile bathed (door bolted
 
 In rapid succession: Petra's brimming bowl with a needle folded in it; Grimes's first manufactured coincidence — the silent bench-take, two cups of tea, and a probe about "night wagons" on the west road sourced to "a fellow at the depot"; and Levi arriving to check on an order he knows was half-followed, cataloguing the entire table in one pass. The list now has four pages and *tabs*.
 
-Paused with Grimes's question hanging, Levi parked at the head of the table, and Petra watching all three from the pot. Súile's turn.
+Súile met Levi's order-checking with bread, dimples, and "unless you'd rather me eat alone in my room?" — answered with the Oluo-outside-your-door threat (nuclear) and an arctic ruling that the regiment eats together. Levi accepted a bowl of Petra's stew (three spoons stopped mid-air; Petra radiant) and toasted the kill: "The sergeant kills clean."
+
+Then Levi ran his own fieldcraft on Grimes: reframed the night wagons as boring market-tax graft the Scouts don't police, tested for the flinch with a bland scalpel of an insult, and asked the depot friend's name. **"Didn't catch it, sir"** — a quarter-second pause and one cuff-work. Levi withdrew to captain's distance, leaving the trap baited.
+
+Grimes re-priced the room and pressed a second time, register dropped, with a wedge line about the Captain ("man like that only sees what's written down") and the repeat ask: **"What do the woods say at night?"** One insistence past casual, on day two. Súile's turn.
 
 They held, and got the face: a fiftyish cavalry officer out of uniform — cut-down cavalry boots, stiff left knee, parade seat, a gold signet ring turned and hidden before gloving, and a dog that belongs to him. Levi's verdict: not a buyer but the **owner**, come in with the night run to inventory his own crates. The man rode east toward the depot — the same direction as home.
 

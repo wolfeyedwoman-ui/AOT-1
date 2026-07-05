@@ -47,6 +47,11 @@ A defected Military Police officer — **Voss Grimes** (see [characters/voss-gri
 - Transfer papers take weeks: Grimes was moved **before** the barn was found. Not a response — a **precaution**. Someone wanted eyes inside the one regiment that rides the west routes irregularly and can't be bought by the crate.
 - Countermeasures: don't spook him; rotation stands; second sealed letter to Erwin for a back-channel file check. Watch which way he angles — map room, duty rosters, or the west-detail riders. Predicted vector: Súile ("the easiest door in the keep"). Standing orders: take nothing to him, let him bring things to her.
 
+## Day three, noon (Chapter 9)
+
+- **Grimes's bait:** someone out west is reportedly paying, off the books, for word of **two riders near the fork at first light yesterday** — delivered to Súile with her face as the asking price. Either the barn crew found sign of the dawn ride and the principal is fishing, or the reward is an invention built to flush a flinch. She gave nothing.
+- **Erwin's answer has arrived:** courier through the gate at noon, pouch signed for by Levi personally, unopened in the yard. Office summons issued — the report and the letter on the same desk.
+
 ## Open questions
 
 - Who holds the manifests — depot clerk, MP officer, quartermaster chain? Is it Grimes's principal?

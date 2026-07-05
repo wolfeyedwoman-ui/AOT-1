@@ -61,6 +61,14 @@ Intelligence gathered at his door:
 - Through the thin door after it closed: a listening pause, then glass on glass. The other inventory resuming.
 - A floorboard settled two doors down as she left. Possible witness, unconfirmed.
 
+## The tin returned (Chapter 9, full noon)
+
+The promised offering, delivered in the mess at maximum audience: the tin scrubbed to parade shine, the supplies returned in a neat parade — all *left on her table* afterward like a calling card. The "something I caught": word from his depot fellow that **someone out west is paying, quietly and off the books, for information about two riders seen near the fork at first light yesterday.** The gift wasn't the information; her face was the price, and he watched her eat while the bait sat. She gave him nothing.
+
+Escalation marker: for the first time, the **smooth-back** — both temples, slow, the boyishness draining out — followed by quiet menace with her private nickname in his mouth ("Careful hunting, *Fox Eyes*... the woods have eyes in them lately"). Charm → gifts → **pressure**: the schedule is running.
+
+Open question the bait forces: did the barn crew actually find sign of the dawn ride (the principal fishing for who rode past), or is the "reward" a lure invented to flush a guilty flinch? Both roads run through Grimes.
+
 ## Threat notes
 
 - If he's a plant, his principal holds manifests and patrol schedules: depot clerk, MP officer, or quartermaster chain.

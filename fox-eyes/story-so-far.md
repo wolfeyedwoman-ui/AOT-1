@@ -36,4 +36,6 @@ At the creek crossing, Levi hands over the lead: "From here, you're the captain.
 
 Chapter 6, prone on the ridge line. Súile has delivered her read — the leather-apron man is the crew's farrier and its weak plank: resents the visitor, fears him worse, wants out; when the barn falls he's to be taken breathing. Her call was **hold**: the grey is groomed and its saddle furniture laid out, the visitor came with the night wagon and will leave in daylight within the hour. Levi ratified it, and added the handkerchief remark to the list.
 
-They held. The dog's head has come up, the chain has drawn taut toward the barn, and **the latch has just lifted** — the visitor's face is one heartbeat away. Next turn: the reveal.
+They held, and got the face: a fiftyish cavalry officer out of uniform — cut-down cavalry boots, stiff left knee, parade seat, a gold signet ring turned and hidden before gloving, and a dog that belongs to him. Levi's verdict: not a buyer but the **owner**, come in with the night run to inventory his own crates. The man rode east toward the depot — the same direction as home.
+
+But the reveal cut both ways: Súile went carefully, deliberately still behind the glass, and Levi read it off her the way she reads birds. The chapter is paused on his whispered question: **"Do you know him?"** Next turn is hers — and the answer decides whose story the barn belongs to.

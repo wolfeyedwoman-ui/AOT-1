@@ -97,3 +97,29 @@ It was the dog that told them first. She felt it through the glass before the do
 "Dog's up," she breathed.
 
 The latch lifted.
+
+"Hold," she murmured. "Stay low."
+
+They held. She felt Levi go from still to *stone* beside her — even his breath rerouted, slow and shallow, mist rationed out through his teeth so it wouldn't hang.
+
+Below, the farrier came off the wall like a man yanked by a wire. The smoke died against his boot heel — and then, the detail that made her jaw tighten: he *pocketed the butt*. Cold, half-smoked, straight into the apron pocket. Leave-no-sign wasn't his habit; thrift doesn't flinch like that. Someone had made it a rule, recently, and the someone was coming through the door.
+
+The visitor stepped out into the flat morning light.
+
+Fiftyish. Tall, and *squared* — a back that had spent decades being inspected and won every time. Iron-grey hair clipped tight to the skull, mustache trimmed to regulation width on a face like a closed ledger. The coat was civilian — long riding wool, expensive, forgettable brown — but it hung off him the way dress uniform hangs, seams at attention. Below it, the boots told the truth: cavalry boots, beautiful ones, with the distinctive tops cut down to look like a merchant's. You could dress the man out of the army. Nobody had dressed the walk: he came across the yard with a horseman's roll and a left knee that didn't bend past a soldier's old injury, and the chained dog went down flat on its belly and *wriggled* — joy, total submission. His dog. He didn't look at it.
+
+The farrier saddled the grey with quick, careful hands, and gave his over-fast nod, eyes down. The visitor answered with two fingers, palm still — not a greeting. An officer receiving a salute in a yard where nobody was supposed to be saluting. Then he checked the girth himself, re-ran the buckle the farrier had already set, and adjusted the stirrup leather a hole — a man who had never once trusted another human being's work and had been promoted for it his whole life.
+
+Levi's voice arrived at her ear at the volume of a page turning, flat, filing identifiers the way she'd filed bearings.
+
+"Hundred eighty-five, thirteen stone. Cavalry seat before he's even mounted. Left knee's been through a surgeon — lance or a fall, old. Boot-tops cut down, which nobody does to boots that cost that much unless the boots aren't supposed to introduce him." A breath. "Interior manners. That's no buyer come to haggle, Fox Eyes. That's the *owner*, doing inventory. He came in with the night run to count his own crates — the staked dog, the pocketed butt, the tightened procedure. All him."
+
+The visitor pulled on his gloves — and paused, and stripped the left one back off, and turned a ring on his little finger a quarter-turn before covering it again. Gold. Signet-cut. One flash of it in the low sun, and gone into kidskin.
+
+Then he mounted — the knee needed the stirrup's help, the seat was parade-perfect the instant he was up — walked the grey out of the yard, and turned east at the track's mouth. Toward the fork. Toward the depot. Toward, eventually, the same survey road that would take two officers exercising horses home, which meant the morning had just acquired a rear-guard problem on top of everything else.
+
+Levi watched him diminish up the track, and only when the hoof-sound was gone under the wind did he move — one centimeter, his head, toward her. And whatever he found in her face through the bracken made the grey eyes sharpen a full degree, because reading her was the one piece of fieldcraft on this ridge he'd never needed a specialty for. The glass was steady in her hands. It was steady the way *he* held things steady, which is to say: on purpose.
+
+"Fox Eyes." Barely sound at all. "The seat, the knee, the ring. Tell me straight—"
+
+"—do you know him?"

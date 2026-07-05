@@ -40,4 +40,8 @@ Petra's after-action report: **"I don't like him."** Her real question — who t
 
 ## Current scene state
 
-Chapter 8 (*The Dusk Watch*), the west tower, firelight. Súile answered the knock with a theatrical bow ("Welcome in, Captain" — filed under *T*, for theater). Levi brought the good teapot across the keep; the study chair by her hearth is quietly his now. He already knows about the doorstep — not from a witness, but from her own shelf: "Your vinegar bottle's missing." Not one degree angry; very slightly amused; patient as winter. The tea is steeping and the floor is hers: **"Report while it steeps, Fox Eyes. All of it."** Súile's turn.
+Chapter 8 (*The Dusk Watch*), the west tower, firelight, tea poured. The debrief is filed: Levi's synthesis names Grimes the **second weak plank** — a maintenance drinker sent cracked into a long game ("impatience is the only informant that never lies"). Orders for the tin's return: full noon, the mess, a crowd he can't work.
+
+Then her hole card: **"I heard you in the corridor. One floorboard. You wanted to be known."** Confirmed, itemized, alphabetized — *Backup* (she was never at that door alone, and never will be), *Bookkeeping* (reports are a formality, not his only source; she filed clean — noted), *Signature* ("I don't watch you anonymous... If I'm ever behind you in a corridor, you'll get the floorboard. That's the arrangement."). And the list is physically real: a soft-creased folded paper in his breast pocket; the bow went on page four, written on the stairs.
+
+The night is quiet, the play is set, the fire is burning down. Open next: the fireside, the tin's return at noon, Erwin's answer (a day or two out), or the next west rotation. Súile's turn.

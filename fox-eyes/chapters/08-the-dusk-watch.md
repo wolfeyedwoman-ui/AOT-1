@@ -1,7 +1,5 @@
 # Chapter 8 — The Dusk Watch
 
-*(in progress)*
-
 She woke to the tower going amber, the courtyard sounds shifting to the dusk watch. And then, over the last of the light:
 
 Two raps. One knuckle. Unhurried, evenly spaced — the cadence of a man auditing a door he already knew was bolted, exactly as promised, checking on an order he'd given twice.
@@ -53,3 +51,46 @@ He let that sit exactly as long as it needed to. Then, because the room was gett
 He poured her cup, dosed the honey, uninvited, exact, and pushed it across the apothecary table to her side. Outside, full dark had settled over the west tower; below, faint, the sounds of the keep banking itself for the night.
 
 "Drink your tea, Fox Eyes."
+
+She picked up the cup, walked to the door, and bolted it — *clack* — and Levi's eyebrow acknowledged the premeditation the way a border post acknowledges an army: noted, logged, too late. She came back, sipped her tea, set the cup on the table — and draped her arms around his neck, kissing his ear.
+
+The flick of tongue at the lobe was precisely calibrated to consume one hundred percent of a man's attention for one half of one second — even this man's, even this attention — and that, of course, was the price of admission. She stepped back with his list in her hand.
+
+Levi looked down at his breast pocket. Then at the paper. Then at her. The grey eyes did something complicated and settled on a kind of stunned professional reverence.
+
+"I felt the tongue," he said, flat, "and not the fingers." A beat. "That trade is going in your file. *Both halves.*"
+
+She was already reading — arms recrossed his way, weight on her heels his way, chin down his way, and the impression was, he had to concede, *devastating*: the exact metronome flatness, the pause before the noun. And the list gave her everything she needed, because the list was real, and it was *exactly* what it threatened to be — four small pages in handwriting like upright rows of pins, ruthlessly alphabetized, cross-referenced:
+
+*"Bow, theatrical. See: Theater."*
+*"Dimples, weaponized, two (2). Repeat offense."*
+*"Eye roll — cumulative. Running tab."*
+*"Handkerchief, 'roof tile' remark. Insolent. Accurate."*
+*"Honey, spite-based refusal of."*
+*"Hips, invocation of, in the presence of a child."*
+*"'Mostly.'"* — an entry that was nothing but the one word in quotation marks, which in context was somehow the most damning line on the page —
+*"Orders, creative accounting of. See: Sleep. See also: Everything."*
+
+And then her recital slowed, because page two was different. One entry, alone, underlined twice, the pen pressed hard enough to shadow through the paper:
+
+*"Recklessness, solo, within rifle range, in lightning. — Never again without me."*
+
+Not a grievance. A vow, filed under R, hiding in an accounting system because that was the only language its author fully trusted. She read it, and didn't mime it, and the fire cracked once into the quiet.
+
+The last page. The last entry. Fresh ink — last night's ink:
+
+*"Weary — 'too weary to fight.' Rain check held. Honored on demand."*
+
+"You should see your face," Levi said quietly, from the chair. "You thought you stole my list. You stole an *IOU*."
+
+He stood. He did it the way he did everything — no hurry, no waste — and undid the cravat with two fingers, folded it in half, in quarters, and set it on the apothecary table next to the honey dish: the formal signature of the Scout Regiment's shortest, most dangerous man accepting terms. He rolled one shoulder. Somewhere under the flat expression, way down, something that had grown up fighting in the Underground for bread and been taught by the worst man in the world how to never lose was — *delighted*.
+
+"Feet squared. Weight forward. Thief's guard." He read her stance the way he read maps, circling one slow step to the left, hands loose. "Kenny the Ripper taught me in a tunnel with a knife, brat. You'll get the polite version." A pause, one degree warmer. "Demand received."
+
+She hit him like a snare going off — fast, low, *honestly* fast, fox-quick fingers going for the folded paper he'd tucked back in his pocket because of course the list was the prize, it was always going to be the list — and the polite version turned out to be a hand that wasn't where it had been, a wrist redirected with terrifying gentleness, two bodies pivoting once around a point in the firelight like a compass finding north. It ended — the opening exchange, the *first* of what the night's ledger would record as several — with her wrist folded flat to his chest, his other hand fenced light at her waist, her free hand gripping his collar, both of them a breath apart and neither of them, on the record, losing.
+
+The corner of Levi's mouth moved four percent. On him, a standing ovation.
+
+"Tch," he said, softly, to the yellow eyes at close range. "*There's* the fox."
+
+The fire burned down unhurried, the way good fires do. The jay feather stood its crooked watch on the shelf beside nine old stories about clever spirits and the proud men they collect, and the bolt stayed thrown, and the tower kept the rest the way the tower kept everything — off the record, off the list, and absolutely, alphabetically *filed*.

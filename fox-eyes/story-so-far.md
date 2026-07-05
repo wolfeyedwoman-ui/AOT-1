@@ -1,6 +1,6 @@
 # Story So Far
 
-*Last updated: opening of Chapter 8 — dusk, two raps at the bolted tower door.*
+*Last updated: end of Chapter 8 — the curtain drawn on the west tower.*
 
 ## Synopsis
 
@@ -38,10 +38,16 @@ Petra's after-action report: **"I don't like him."** Her real question — who t
 - **Wallis and Mina.** Rolled out at noon, wagon mended. The fox lady has a lucky jay feather.
 - **Territory transferred.** The honey dish and the salve tin live in the west tower now.
 
-## Current scene state
+## Chapter 8 — the dusk watch
 
-Chapter 8 (*The Dusk Watch*), the west tower, firelight, tea poured. The debrief is filed: Levi's synthesis names Grimes the **second weak plank** — a maintenance drinker sent cracked into a long game ("impatience is the only informant that never lies"). Orders for the tin's return: full noon, the mess, a crowd he can't work.
+The west tower, firelight, tea poured. The debrief is filed: Levi's synthesis names Grimes the **second weak plank** — a maintenance drinker sent cracked into a long game ("impatience is the only informant that never lies"). Orders for the tin's return: full noon, the mess, a crowd he can't work.
 
 Then her hole card: **"I heard you in the corridor. One floorboard. You wanted to be known."** Confirmed, itemized, alphabetized — *Backup* (she was never at that door alone, and never will be), *Bookkeeping* (reports are a formality, not his only source; she filed clean — noted), *Signature* ("I don't watch you anonymous... If I'm ever behind you in a corridor, you'll get the floorboard. That's the arrangement."). And the list is physically real: a soft-creased folded paper in his breast pocket; the bow went on page four, written on the stairs.
 
-The night is quiet, the play is set, the fire is burning down. Open next: the fireside, the tin's return at noon, Erwin's answer (a day or two out), or the next west rotation. Súile's turn.
+Then the fox cashed the rain check. Door bolted, a kiss to the ear as cover — *"I felt the tongue and not the fingers"* — and the list lifted from his breast pocket and read aloud in a devastating impression of its author. The list is exactly what it threatened to be: four alphabetized, cross-referenced pages — and two entries that aren't grievances at all. Page two, underlined twice: *"Recklessness, solo, within rifle range, in lightning. — Never again without me."* And the final entry, in last night's ink: *"Weary — 'too weary to fight.' Rain check held. Honored on demand."*
+
+"You thought you stole my list. You stole an *IOU*." The cravat came off, folded, and was set beside the honey dish — terms formally accepted. The opening exchange of the sparring match ended a breath apart with nobody on the record losing, a four-percent smile, and *"There's the fox."* The fire burned down; the bolt stayed thrown; the tower kept the rest off the record and alphabetically filed. **Chapter 8 closed.**
+
+## Current scene state
+
+Between chapters. Morning follows the night of the rain check. Open next: morning muster, the tin coming back at full noon (orders: the mess, a crowd he can't work), Erwin's answer riding in (a day or two out), the next west rotation — or wherever the fox fancies. Súile's turn.

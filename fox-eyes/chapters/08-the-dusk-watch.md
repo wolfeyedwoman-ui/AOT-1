@@ -93,4 +93,6 @@ The corner of Levi's mouth moved four percent. On him, a standing ovation.
 
 "Tch," he said, softly, to the yellow eyes at close range. "*There's* the fox."
 
+She bit his chest — not hard, but with hunger — and pivoted them back toward the bed, and the last thing the firelight witnessed was the two of them turning as one body before the tower drew its stone shoulder across the doorway of the scene.
+
 The fire burned down unhurried, the way good fires do. The jay feather stood its crooked watch on the shelf beside nine old stories about clever spirits and the proud men they collect, and the bolt stayed thrown, and the tower kept the rest the way the tower kept everything — off the record, off the list, and absolutely, alphabetically *filed*.

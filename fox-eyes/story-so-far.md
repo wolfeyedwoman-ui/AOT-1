@@ -50,4 +50,4 @@ Then the fox cashed the rain check. Door bolted, a kiss to the ear as cover — 
 
 ## Current scene state
 
-Between chapters. Morning follows the night of the rain check. Open next: morning muster, the tin coming back at full noon (orders: the mess, a crowd he can't work), Erwin's answer riding in (a day or two out), the next west rotation — or wherever the fox fancies. Súile's turn.
+Chapter 9 (*The Morning Ledger*) has opened. The list's newest entry: *"Teeth. — See: Fox. Ledger balanced."* Levi's three items for the day: **(1)** the tin returns at full noon in the mess, maximum audience, every word to his desk within the hour; **(2)** the courier is due through the fork by midday, possibly carrying Erwin's answer under a requisition stamp — nobody touches the pouch but Levi; **(3)** the page-two vow stands: the west rotation rides tomorrow at dawn, *both* of them. He left with one deliberate floorboard on the last landing — the signature. The day is Súile's to run. Her turn.

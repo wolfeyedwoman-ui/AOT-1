@@ -29,3 +29,4 @@ Turn-based role-play, kept as close to canon as the premise allows. Levi, the sq
 6. [Fourth Bell](chapters/06-fourth-bell.md)
 7. [Pressed Cuffs](chapters/07-pressed-cuffs.md)
 8. [The Dusk Watch](chapters/08-the-dusk-watch.md)
+9. [The Morning Ledger](chapters/09-the-morning-ledger.md) — *in progress*

@@ -26,6 +26,14 @@
 
 - **Fresh ruts in the mouth of the logging track, edges cut sharp — untouched by rain.** A wagon rolled *after* the storm broke, in the worst hours of the night. Either the schedule doesn't bend, or the storm was used as cover. "Your smugglers move on a clock, Sergeant, and thunder doesn't stop it."
 
+From the ridge (Súile's approach: wind-first route, horses in the alder brake, belly crawl through bracken; her map confirmed to the meter):
+
+- **Two new rut sets — one in, one out.** The night wagon came *and went*. They're not warehousing; they're moving it through.
+- **The dog is now staked outside on a chain** — procedure tightened since Súile's first visit. They may have found her sign on the creek bank.
+- Stovepipe drawing; four men accounted for by boot traffic.
+- **A fifth horse in the paddock**: tall grey, clean-legged, groomed, military saddle furniture on the rail, cavalry-shod. Nobody in that barn owns it. *The uniform up the chain is visiting, and is still inside.*
+- Decision pending on the ridge: hold for the rider's face, or fold before mid-morning makes two absent officers a collectible fact at the keep (where Grimes is watching).
+
 ## The Voss Grimes question
 
 A defected Military Police officer — **Voss Grimes** (see [characters/voss-grimes.md](../characters/voss-grimes.md)) — has just transferred into the regiment with a spotless file. Súile flagged him; Levi's arithmetic:

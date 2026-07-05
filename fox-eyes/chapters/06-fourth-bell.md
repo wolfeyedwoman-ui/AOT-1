@@ -35,3 +35,29 @@ The turnoff came up on the left — the logging track, innocent in the flat morn
 At the creek he reined in, water running loud and brown with storm-melt under the old plank crossing, and gestured her forward with two fingers — *your ground*.
 
 "From here, you're the captain. Take us up to the ridge the way you'd take a detail you didn't trust to be quiet." The barest tilt of his head. "Show me how a fox walks."
+
+She bowed low against Mandrake's back, and Levi watched the mare change underneath her — gait shortening, head dropping level with her withers, hooves finding the grass margin of the track without being asked. Small, brown-black, nothing to look at in a parade line, and worth more than most of the stable: hunting-village stock, bred for nerve instead of flash. The regiment kept six hundred horses and prized them like soldiers; Levi had sat most of them at one time or another.
+
+"Tch. Six hundred head in our books," he said, barely above the creak of leather, "and maybe five that wouldn't have announced us to that dog already. You requisitioned the right one." From Levi, a citizen's lifetime earnings of compliment.
+
+Fifty meters short of where the track began to climb, she left it — no order, no gesture he could see, just a shift of knee and weight, and Mandrake stepped off into the heather like a thought leaving a sentence. Levi's tall grey gelding followed with considerably more opinion about it. Súile swung them east first, a long shallow arc that made no sense by the map and perfect sense by the wind: it came across their faces now, carrying their scent away from the barn's side of the ridge and the chained nose waiting down there.
+
+In an alder brake below the crest she halted, dismounted, loosed girths. Mandrake stood like furniture. The gelding fidgeted, threw his head once — and she laid two fingers against his nose and breathed something at him, and he went still with an abruptness that made his rider's eyes narrow.
+
+"Four years I've ridden that animal," Levi observed, to nobody. "Noted."
+
+At the treeline she stopped and simply *listened* — and Levi, who missed nothing, watched her read the field the way he read a room. The jays in the alders: quiet, but settled-quiet, not alarm-quiet. Two crows working the ridgeline air, unhurried. A pigeon dust-bathing in the open, forty meters from cover. The land's whole staff of sentries reporting *no one is moving out here*, in a language she'd apparently been fluent in since the cradle. She signed *forward, low*, and took them the last stretch on their bellies through wet bracken — and Levi, a man who had once threatened a soldier with the mop over a bootprint, went down into the cold mud beside her without one syllable of complaint. Operational mud was a different substance entirely.
+
+The ridge line. The valley opened below.
+
+Her map held to the meter — track, creek kink, barn axis, all of it exactly where her hand had put it by lamplight, and Levi noted that too. He drew the small brass field glass from his coat, shielded the lens against the low sun with one hand, and read the ground for a long, silent minute.
+
+"Bearings confirmed. Your drawing's worth a cartographer's pay." A fractional pause. "Now the bad news."
+
+He passed her the glass and inventoried it aloud, flat, while she looked: "Two new rut sets in the track mouth, one in, one out — the night wagon came *and went*, they're not warehousing, they're *moving* it through. Dog's staked outside now, on a chain, which means somebody tightened their procedure since your visit — they may have found your sign on the creek bank. Stovepipe's drawing; four men accounted for by the boot traffic at the door." A beat, and his voice went one notch quieter, which from Levi was a klaxon. "Paddock. Behind the woodpile. Fifth horse."
+
+It stood apart from the four rough cobs like a wrong word in a sentence: a tall grey, clean-legged, groomed to a shine — military saddle furniture on the rail beside it, and by the way it was shod, cavalry work. Nobody in that barn owned that horse. That horse was *visiting*, and its owner was still inside.
+
+"The uniform up the chain," Levi murmured. "In the flesh, one glass field away, and the only thing between us and a face is however long his breakfast takes." His eyes stayed on the barn, but the words were for her, and he laid the decision down between them like the field glass — deliberately, handle first.
+
+"Your ground, Sergeant, so it's your call, and the clock has two hands on it. Hold for the face and we might hang the whole chain at once. But two officers exercising horses are only invisible until mid-morning — after that our absence is a fact somebody at the keep can collect. And the new transfer with the pressed cuffs will have noticed by now that the west detail's sergeant rode out before fourth bell." The glass glinted between them in the bracken. "Hold or fold, Fox Eyes. How long does your ground say we have?"

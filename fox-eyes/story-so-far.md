@@ -18,7 +18,7 @@ On the road, Súile raises the regiment's newest wrinkle: **Voss Grimes**, a def
 
 Passing the logging track, Levi clocks fresh ruts with rain-free edges — a wagon moved *after* the storm broke. The smugglers run on a clock that thunder doesn't stop.
 
-At the creek crossing, Levi hands over the lead: "From here, you're the captain. Show me how a fox walks."
+At the creek crossing, Levi hands over the lead: "From here, you're the captain. Show me how a fox walks." She does — wind-first routing on Mandrake, her recon mare, horses left in an alder brake, a belly crawl to the ridge, the field read through its birds. From the crest, the glass shows the operation is *moving* goods through (ruts in and out overnight), the dog now staked on a chain, and — the bad news — a fifth horse in the paddock: a groomed cavalry-shod grey with military saddle furniture. The uniform up the chain is visiting the barn in person, still inside, one breakfast away from having a face.
 
 ## Open threads
 
@@ -34,4 +34,4 @@ At the creek crossing, Levi hands over the lead: "From here, you're the captain.
 
 ## Current scene state
 
-Chapter 6, at the creek crossing in early morning light. Fresh post-storm ruts confirmed at the logging track's mouth. Súile now has the lead — the ridge approach is hers to run, with Levi following. Next turn is hers.
+Chapter 6, prone on the ridge line in early morning light, field glass between them. The visiting rider's grey stands in the paddock; its owner is inside the barn. Levi has handed Súile the call: **hold for the face, or fold before mid-morning** — when two absent officers become a fact Grimes can collect at the keep. Next turn is hers.

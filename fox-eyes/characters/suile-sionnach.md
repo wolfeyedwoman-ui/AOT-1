@@ -5,7 +5,7 @@
 **Height / build:** 152 cm, 50 kg, curvy
 **Hair:** Black, chin-length bob of wild curls, parted on the left
 **Eyes:** Yellow — the source of the callsign, though not its origin
-**Specialty:** Reconnaissance — a stealth-based tactician with a specialty in animal behavior
+**Specialty:** Reconnaissance — a stealth-based tactician with a specialty in animal behavior. Expert hunter, trapper, thief, and pickpocket. Expert at reading faces, identifying small tells, and sensing emotions.
 
 ## Overview
 
@@ -32,6 +32,12 @@ Her mount: a small brown-black mare, ideal for reconnaissance — quiet, light-f
 ## The animal-behavior specialty
 
 Súile reads terrain through its animals: settled-quiet jays versus alarm-quiet jays, unhurried crows, a pigeon dust-bathing in the open as proof that nothing is moving. She routes approaches by wind first and map second (a chained dog's nose is a sensor to be defeated). She once stilled Levi's own fidgeting gelding with two fingers and a breath — an animal he has ridden for four years. ("Noted.")
+
+## The other education
+
+Her Garrison file says wall rotation, Trost, six years, commendations. Files like that don't teach her skill set: hunter's patience, trapper's eye, and a thief's and pickpocket's hands — she has lifted three things off Levi since transferring, just to see if he'd notice (the chalk, the spare gear key, and the handkerchief she put *back*, "which was the impressive part"). She reads faces and small tells the way she reads birds, and hears what a man feels before he knows it himself.
+
+Where she learned any of it is not in the file. Levi's read: Pixis — the best judge of people inside three Walls — left it out *on purpose*. Levi isn't asking. "When you ever want to tell it, I'll drink the tea cold."
 
 ## Habits and details
 

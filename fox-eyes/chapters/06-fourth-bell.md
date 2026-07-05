@@ -61,3 +61,17 @@ It stood apart from the four rough cobs like a wrong word in a sentence: a tall 
 "The uniform up the chain," Levi murmured. "In the flesh, one glass field away, and the only thing between us and a face is however long his breakfast takes." His eyes stayed on the barn, but the words were for her, and he laid the decision down between them like the field glass — deliberately, handle first.
 
 "Your ground, Sergeant, so it's your call, and the clock has two hands on it. Hold for the face and we might hang the whole chain at once. But two officers exercising horses are only invisible until mid-morning — after that our absence is a fact somebody at the keep can collect. And the new transfer with the pressed cuffs will have noticed by now that the west detail's sergeant rode out before fourth bell." The glass glinted between them in the bracken. "Hold or fold, Fox Eyes. How long does your ground say we have?"
+
+Below them, the barn door swung open.
+
+A big man in a leather apron came out with a slop bucket, flung it, and stood a moment in the cold — and the ridge went very still, two pairs of eyes and one field glass narrowed on him. He checked the dog's stake with his boot. He gave the dog itself a wide, careful berth while he did it, which was its own small essay: the animal wasn't his, and it wasn't the other three's either. Then he rolled a smoke with his back to the wind, and twice — twice in the space of striking a light — glanced back over his shoulder at the door he'd closed behind him.
+
+Levi didn't reach for the glass. He left it in her hands.
+
+"You read men the way you read birds," he said, barely a breath. "So read them for me, Sergeant. That one first. I can tell you what he's *doing*. You tell me what he's *feeling*, and about whom." A pause, one heartbeat long. "Then give me your call. Both answers are the same trade, anyway — hold or fold is just a question of what his face is worth."
+
+And while she glassed the smoking man, Levi added the other thing — flat, quiet, aimed at the valley, the way he delivered anything that mattered too much to look at while saying it.
+
+"One more entry for the record, Fox Eyes. Garrison file says wall rotation, Trost, six years, commendations. Files like that don't teach hands like yours. You've lifted three things off me since you transferred to see if I'd notice — the chalk, the spare gear key, and the handkerchief you put *back*, which was the impressive part." No accusation in it; if anything, the opposite — the professional courtesy of one set of educated fingers acknowledging another. "Pixis found you somewhere he didn't write down. Old drunk's the best judge of people inside three Walls; he doesn't leave things out by accident, he leaves them out on *purpose*." The grey eyes never left the barn. "I'm not asking. When you ever want to tell it, I'll drink the tea cold. But up here, on my flank, I'd rather know what I'm working with than be polite. Hunter's patience, thief's hands, and you hear what a man feels before he knows it himself."
+
+"So. Work, Fox Eyes." The faintest tilt of his chin at the valley, at the smoking man, at the door worth two backward glances. "What does the ground say, what does his face say — and how long do we get to stay?"

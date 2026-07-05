@@ -34,7 +34,7 @@ At the creek crossing, Levi hands over the lead: "From here, you're the captain.
 
 ## Current scene state
 
-Chapter 7 (*Pressed Cuffs*), the courtyard, mid-morning. Grimes has the floor and has just asked "Good hunting, was it?" — with the game bag in plain view backing the cover story. Súile's standing orders: take nothing to him, let him bring things to her. Levi is present, dismounting, in his foulest decoy mood. Next turn is hers.
+Chapter 7 (*Pressed Cuffs*), the stable aisle. Súile answered Grimes's charm with a nod and a tossed game bag — and bought a quarter-second look at the real man underneath (see his character file). Grimes is off delivering the squad's dinner to Petra with blood on his cuff; Levi and Súile have the stables to themselves, and he's just asked for her full read: **"What did the bag buy, Fox Eyes?"** Next turn is hers.
 
 They held, and got the face: a fiftyish cavalry officer out of uniform — cut-down cavalry boots, stiff left knee, parade seat, a gold signet ring turned and hidden before gloving, and a dog that belongs to him. Levi's verdict: not a buyer but the **owner**, come in with the night run to inventory his own crates. The man rode east toward the depot — the same direction as home.
 
